@@ -1,1 +1,1 @@
-my second 
+Good news
